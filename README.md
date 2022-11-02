@@ -1,3 +1,5 @@
-DMCS
-DIT ME CONG SAN
-facebook.com/ngphctn14
+TAN NGO PHC TAN NGOP HUCTAN NG PHUCTAN NGPHCTN14
+14
+
+14
+NG PHC TN 14///////////////////////////////////////////////////////////////////////////////////////////GOLD
